@@ -1,0 +1,1 @@
+# akilli_cihaz_tasarimi_NYAT
